@@ -1,2 +1,1 @@
-# zoo
 happy animals
