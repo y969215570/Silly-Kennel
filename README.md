@@ -1,1 +1,1 @@
-happy animals
+happy dogs
